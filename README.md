@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Gowthamkumar
+- 👀 I’m interested in Tech
+- 🌱 I’m currently learning Linux,AWS,Devops
+- 💞️ I’m looking to collaborate on Tech field
+- 📫 How to reach me gowthamramesh097@gmail.com
+- 😄 Pronouns: He/Him
